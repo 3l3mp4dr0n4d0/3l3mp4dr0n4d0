@@ -1,2 +1,2 @@
 Hola mundo
-Los empadronaods estan aqui
+Los empadronados estan aqui
